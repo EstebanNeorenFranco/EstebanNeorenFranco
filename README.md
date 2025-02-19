@@ -1,4 +1,3 @@
 - 🙋🏻‍♂️ Hi, I’m @EstebanNeorenFranco
 - 📚 Studying Business Management
-- 🚀 AI and web development
 - 🎮Also gamedev in my free time
